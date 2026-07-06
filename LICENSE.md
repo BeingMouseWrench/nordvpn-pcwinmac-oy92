@@ -1,4 +1,4 @@
-# 
+# Gratuito NordVPN extensões para Mac OS | Seguro NordVPN extensões para PC Windows. Com otimização para streaming e rastreamento de largura de banda — otimizado para máximo desempenho em cada plataforma.
 
 
 
